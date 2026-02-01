@@ -1,0 +1,2 @@
+# Akrithi-Where-Passion-Meets-the-Plate
+Bite into bliss — made with love, served with joy, and inspired by you, our secret ingredient.
